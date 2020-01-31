@@ -1,2 +1,2 @@
 # healthy life style
-Lets learn to be health together!
+Lets learn to be healthy together!
